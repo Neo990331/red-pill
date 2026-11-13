@@ -14,7 +14,7 @@
 
 ## 更多内容
 
+- **X**：[@neo990331](https://x.com/neo990331)
 - **长视频**：[YouTube](https://www.youtube.com/@itsRedPill) / [B 站](https://space.bilibili.com/3706961321265844)
 - **微信**：视频号、公众号（Neo0331）
 - **小红书**：ID 910043027
-- **X**：[@neo990331](https://x.com/neo990331)
